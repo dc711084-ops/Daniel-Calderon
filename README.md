@@ -1,3 +1,3 @@
 # Daniel-Calderon
-Tarea de gabroliveros
-sociocrtica 
+Actividades sociocrtica 
+ 
